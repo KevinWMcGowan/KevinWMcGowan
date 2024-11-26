@@ -4,4 +4,4 @@
 - 📫 You can reach me at kmcgowan@growpublicschools.org
 - 😄 Pronouns: he/him/his
 - ⚡ Fun facts: I'm a triplet, a swimmer, a new dad, and I can juggle.
--  LinkedIn: link here [https://www.linkedin.com/in/kevin-w-mcgowan-m-s-iop/](url)
+- 🤝LinkedIn: link here [https://www.linkedin.com/in/kevin-w-mcgowan-m-s-iop/](url)
